@@ -5,7 +5,6 @@
 
 As a member of the 8th Youth Columnists, I contributed opinion columns addressing major social issues from a young generation's perspective.
 
----
 
 ## Activity Period
 
